@@ -1,111 +1,107 @@
-<p><img src="https://6760698.fs1.hubspotusercontent-na1.net/hub/6760698/hubfs/Nederland-Slank-Mar-21-2024-05-43-56-9962-AM.webp?length=1020&amp;name=Nederland-Slank-Mar-21-2024-05-43-56-9962-AM.webp" alt="Nederland-Slank" title="Nederland-Slank"></p>
-<h1 id="afvallen-middels-bloedanalyse-is-bewezen-effectief">Afvallen middels bloedanalyse is bewezen effectief</h1>
-<p>De oplossing voor het realiseren van een goed, stabiel gewicht en een goede gezondheid.</p>
-<h3 id="in-dit-artikel-lees-je-over-de-volgende-onderwerpen">In dit artikel lees je over de volgende onderwerpen:</h3>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#wat">Wat is afvallen via bloedanalyse?</a></p>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#Voeding">Voeding als je medicijn</a></p>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#Voedingsadvies">Voedingsadvies op basis van bloedonderzoek</a></p>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#Krijg">Krijg je met afvallen zonder dieet wel het gewenste resultaat?</a></p>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#Waarom">Waarom is Nederland Slank een beter alternatief?</a></p>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#Welke">Welke bloedanalyse hebben we nodig bij Nederland Slank?</a></p>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#Een">Een persoonlijk plan op basis van jouw bloedanalyse</a></p>
-<p><a href="https://www.nederlandslank.nl/afvallen/afvallen-via-bloedanalyse#Meer">Meer weten over afvallen via bloedanalyse?</a></p>
-<p>Het klinkt misschien rigoureus, maar dat valt mee. Aan de hand van jouw uitslag op 35 bloedwaarden wordt een programma opgesteld, gericht op jouw lichaam. Het is dus een persoonlijk programma, dat alleen succesvol is wanneer het op maat wordt afgestemd op jouw behoeften. Dit in tegenstelling tot de meeste andere diëten en programma’s die qua aanpak en inhoud voor alle deelnemers gelijk zijn.</p>
-<p>Dit is de oplossing voor een evenwichtige hormoonbalans en daarmee het realiseren van een goed, stabiel gewicht en een goede gezondheid.</p>
-<h2 id="wat-is-afvallen-via-bloedanalyse">Wat is afvallen via bloedanalyse?</h2>
-<p><img src="https://www.nederlandslank.nl/hubfs/afvallen-via-bloedanalyse.webp" alt="afvallen via bloedanalyse"></p>
-<p>Omdat je bloed zuurstof en voedingsstoffen naar je hele lichaam brengt, en door je hele lichaam loopt, laat het de ziekteverschijnselen uit alle organen zien. De bloedanalyse wordt gebruikt om te zien welke nutriënten onvoldoende aanwezig zijn, welke nutriënten beter niet toegepast worden en welke delen van het lichaam goed functioneren.</p>
-<h2 id="voeding-als-je-medicijn">Voeding als je medicijn</h2>
-<p>Je persoonlijke informatie over je gezondheid en voorkeuren betreft voeding en je bloedanalyse zijn de basis voor het persoonlijke voedingsplan. Op basis daarvan maken we een driedaagse menucyclus en variatielijsten. Hiermee zorgen we dat je alle nutriënten krijgt en niet teveel anti-nutriënten. Zo zorgen we dat je stofwisseling optimaal werkt en voeding echt als je medicijn gaat functioneren.</p>
-<p>Op basis van de gegevens over lever, nieren, schildklier en ontstekingswaarden kunnen we al een aantal adviezen geven. Daarnaast maken we gebruik van patroonherkenning in het bloedbeeld om te zien welke voeding het meest ondersteunend is voor jouw lichaam.</p>
-<p>Je lichaam is echt een soort <a href="https://www.nederlandslank.nl/blog/je-lichaam-is-een-chemische-fabriek">chemische</a> fabriek die heel veel stofjes nodig heeft om top te presteren. De kennis daarvan is o.a. wat een <a href="https://www.nederlandslank.nl/blog/is-orthomoleculair-advies-nu-eigenlijk">orthomoleculair</a> therapeut toepast om jou je doelen te laten behalen.</p>
-<p>Bij Nederland Slank word je persoonlijk naar je resultaat begeleid door <a href="https://www.nederlandslank.nl/de-dietisten-van-nederland-slank">professionals (diëtisten/orthomoleculair therapeuten).</a> Ons programma biedt een uitgebreid bloedonderzoek, een persoonlijk voedingsplan en begeleiding via videobellen gedurende alle fases van het plan.</p>
-<p>De consulten worden vaak vergoed door <a href="https://www.nederlandslank.nl/mbog-overzicht-zorgverzekeraars-2020">ziektekostenverzekeraars</a>. Dat betekent dat je veelal een deel van de kosten terugkrijgt.</p>
-<p>Wij zijn zo overtuigd dat Nederland Slank voor je zal werken dat wij het aanbieden op basis van “no cure, no pay”: als je je doel niet bereikt dan krijg je je geld terug!</p>
-<h2 id="section"><img src="https://www.nederlandslank.nl/hubfs/voedingsadvies-op-basis-van-bloedonderzoek.webp" alt="voedingsadvies-op-basis-van-bloedonderzoek"></h2>
-<h2 id="voedingsadvies-op-basis-van-bloedonderzoek">Voedingsadvies op basis van bloedonderzoek</h2>
-<p>Vraag een voedingsadvies op basis van bloedonderzoek. Afvallen zonder (een streng) dieet klinkt veel mensen als muziek in de oren. Geen dure maaltijdvervangers, zoals shakes of poeders, geen sapkuur of iets dergelijks, en niet al te veel honger lijden. Maar afvallen zonder dieet gaat niet vanzelf. Je zult altijd je eetgewoonten in meer of mindere mate moeten aanpassen.</p>
-<p>Het principe van ‘<a href="https://www.nederlandslank.nl/blog/afvallen-zonder-dieet">afvallen zonder dieet</a>’ is veelal gebaseerd op de Richtlijnen Goede Voeding en de <a href="https://www.voedingscentrum.nl/nl/gezond-eten-met-de-schijf-van-vijf/hoeveel-en-wat-kan-ik-per-dag-eten-.aspx">Schijf van Vijf</a> van het Voedingscentrum. Dit houdt in dat je voldoende fruit en groente eet, voldoende volkoren en zuivelproducten, mager vlees(waren) en vis en dat je gebruik maakt van plantaardige oliën en zachte bak- en braadvetten.</p>
-<p>De inname van verzadigde vetten moet dan zoveel mogelijk beperkt worden. Verzadigde vetten zitten onder andere in volle zuivelproducten, zoals volle melk en vette kaas, in vet vlees en harde bak- en braadvetten.</p>
-<p>Geadviseerd wordt om voor magere (light) varianten van producten te kiezen en zo min mogelijk producten te gebruiken met veel vet, suiker of alcohol. Afwisseling aanbrengen in wat je eet en voldoende bewegen vallen ook onder deze richtlijnen.</p>
-<p><img src="https://www.nederlandslank.nl/hubfs/suikervrij.webp" alt="suikervrij"></p>
-<p>Natuurlijk is afvallen zonder restricties niet mogelijk. Zonder het veranderen van eetgedrag en -gewoonten. Zo worden adviezen gegeven als minder grote porties eten, nooit het ontbijt overslaan, drie of 6 keer per dag eten met rust en aandacht, langzaam en goed kauwen, minder tussen de maaltijden door eten en slechts een keer per week op de weegschaal gaan staan.</p>
-<p>Onder andere het Voedingscentrum en de diëtist geven voedingsadviezen om gewicht te verliezen en betere eetgewoonten aan te leren. Ook Sonja Bakker en de Weight Watchers hanteren het principe ‘afvallen zonder dieet’ door het aanleren van een gezonde leefstijl. Verder zijn er diverse voedingsadviezen en alternatieve varianten beschikbaar op het internet.</p>
-<p>Zo wordt bij het ene programma de nadruk gelegd op afvallen door beweging met het aanbieden van een uitgebreid sportprogramma. Een ander richt zich op het veranderen van ‘slecht eetgedrag’, zoals emotie-eten. Ook zijn er aanbieders die beloven dat je af kunt vallen zonder dieetaanpassingen, bijvoorbeeld met behulp van afslankpillen. Ongezond en zeker geen oplossing voor de lange termijn.</p>
-<h2 id="krijg-je-met-afvallen-zonder-dieet-wel-het-gewenste-resultaat">Krijg je met afvallen zonder dieet wel het gewenste resultaat?</h2>
-<p>‘Afvallen zonder dieet’ wordt geadviseerd, omdat het als gezond en effectief wordt gezien. Er worden geen voedingsmiddelen uitgesloten. Doordat er aandacht is voor het aanleren van gezonde eetgewoonten en het afvallen geleidelijk gaat, zou er meer kans moeten zijn op gewichtsbehoud op langere termijn. Maar is dit wel zo?</p>
-<p><img src="https://www.nederlandslank.nl/hubfs/fvallen-met-bloedonderzoek.webp" alt="fvallen-met-bloedonderzoek"><a href="https://www.nederlandslank.nl/blog/stofwisseling-versnellen-of-metabolisme-verhogen">Stofwisselingsproblemen</a> als overgewicht, diabetes, te hoog cholesterol en een te hoog bloedsuiker zijn het gevolg van een onevenwichtige hormoonhuishouding en andere genetische en/of energie-problemen. Gezond en minder (slecht) eten en het veranderen van je eetgedrag zijn niet voldoende om de balans te herstellen. Hormonen in het lichaam worden beïnvloed door de juiste combinatie en juiste hoeveelheden van bepaalde voedingsmiddelen. Deze moeten worden afgestemd op de persoonlijke behoeften van het lichaam.</p>
-<p>Met een gezonde leefstijl kun je misschien wel geleidelijk afvallen, terwijl veel mensen juist snel en veel willen of moeten afvallen. En het is moeilijk om iets vol te houden als je niet direct resultaat ziet. Het risico is dan o.a. dat mensen voortijdig afhaken. Daarbij kun je geen stabiel gewicht realiseren zonder een evenwichtige hormoonbalans. De kans is groot dat de kilo’s er dan na verloop van tijd weer aankomen.</p>
-<h2 id="waarom-is-nederland-slank-een-beter-alternatief">Waarom is Nederland Slank een beter alternatief?</h2>
-<p>Bij <a href="https://to-nederlandslank-nl.sandbox.hs-sites.com/nl/nederland-slank-programma-2">Nederland Slank</a> draait het om het herstellen van de hormoonhuishouding en andere balansen. Het is gebaseerd op wetenschappelijk onderzoek naar het effect van de hormoonhuishouding op het menselijk lichaam en de gezondheid. Het gaat ervan uit dat overgewicht en andere stofwisselingsproblemen zoals diabetes, een te hoog cholesterol en een hoog bloedsuiker worden veroorzaakt door een verstoord evenwicht in de <a href="https://www.nederlandslank.nl/hormoonhuishouding">hormoonhuishouding</a>.</p>
-<p>Door middel van de juiste voedingsmiddelen in de juiste combinaties en juiste hoeveelheden kunnen de hormonen in het lichaam worden beïnvloed.</p>
-<p>Hyper-insulinemie of <a href="https://www.nederlandslank.nl/blog/wat-is-insulineresistentie">insulineresistentie</a> is de medische term voor deze stofwisselingsproblemen. Bij deze stoornis is de insulinespiegel chronisch verhoogd, terwijl de glucose- of bloedsuikerspiegel nog normale waarden laat zien. Het hormoon insuline zorgt ervoor dat het lichaam glucose (suikers) uit het bloed in de lichaamscellen opneemt. Hyper-insulinemie ontstaat doordat de receptoren ongevoelig geworden zijn voor insuline omdat er altijd erg veel van werd gemaakt.</p>
-<p><img src="https://www.nederlandslank.nl/hubfs/Insulineresistentie1.webp" alt="Insulineresistentie1"></p>
-<p>De pancreas (alvleesklier) gaat, om te proberen deze insulineresistentie te corrigeren, nog meer insuline aanmaken. Hierdoor raakt de insulinespiegel in het bloed chronisch verhoogd. Wanneer insulineresistentie niet tijdig wordt ontdekt en behandeld, raakt de pancreas overbelast en is er een grote kans op het ontwikkelen van diabetes type 2. Bij een groot deel van de mensen met overgewicht is deze stofwisselingsstoornis aanwezig. Symptomen zijn onder andere: gewicht dat toeneemt en vooral rond het middel wordt vastgehouden, een continu hongergevoel vooral na een koolhydraat-rijke maaltijd, vermoeidheid en gewrichtsklachten.</p>
-<p>Ons programma richt zich op de verbetering van de aanmaak van het menselijk groeihormoon. Dit wordt bereikt door het creëren van evenwicht tussen de hormonen zoals cortisol, serotonine en insuline. Het resultaat is een verlaging van insuline en cortisol.</p>
-<p>Verschillen afvallen zonder dieet en Nederland Slank:</p>
-<h3 id="nederland-slank">Nederland Slank</h3>
-<h3 id="‘afvallen-zonder-dieet’">‘afvallen zonder dieet’</h3>
-<ul>
+<h1 id="tips-voor-een-slank-en-gezond-2025">10 tips voor een slank en gezond 2025</h1>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/1%20Year%20=%20365%20Opportunities%20written%20on%20desert%20road.jpeg?width=680&amp;height=454&amp;name=1%20Year%20=%20365%20Opportunities%20written%20on%20desert%20road.jpeg" alt="goede voornemens"></p>
+<p>In dit artikel geven we een aantal kleine tips die een groot effect op de gezondheid hebben. En ze zijn makkelijk vol te houden! Doe jij mee?</p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#een">1 – Ga lekker slapen en wordt productiever</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#twee">2 – Positief effect van flink doorstappen</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#drie">3 – Een fles water op je werkplek</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#vier">4 – Kruid je eten lekker</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#vijf">5 – Bereidingstechniek veranderen</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#zes">6 – Wat je niet in huis hebt, kun je ook niet eten</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#zeven">7 – Contact verbetert je mentale gezondheid</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#acht">8 – Begin de dag met een kiwi</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#negen">9 – Eet eens noten en zaden in plaats van vlees of kaas</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#tien">10 – Ga mediteren</a></p>
+<p><a href="https://www.nederlandslank.nl/afvallen/goede-voornemens#voornemens">Tips om je gezonde goede voornemens vol te houden</a></p>
+<p>We beginnen al niet moeilijk:</p>
+<h2 id="–-ga-lekker-slapen-en-wordt-productiever">#1 – Ga lekker slapen en wordt productiever</h2>
+<p>Slaaptekort komt veel voor en om alsnog een beetje puf te hebben worden er regelmatig koffie en supplementen genomen. Maar energie krijg je ook door eerder naar bed te gaan. Meer dan van een handje pillen dus. Probeer bijvoorbeeld een half uur of een uur eerder te gaan slapen. Dan word je vrolijker en uitgerust wakker en het is goed voor de gezondheid, de <a href="https://pubmed.ncbi.nlm.nih.gov/10543671/">hormoonbalans</a> en je bent veel productiever. Bovendien is slapen heerlijk.</p>
+<p>Zo <a href="https://pubmed.ncbi.nlm.nih.gov/17969465/">presteer</a> je vele malen beter.</p>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/slapen%20en%20afvallen.jpg?width=680&amp;height=453&amp;name=slapen%20en%20afvallen.jpg" alt="slapen en afvallen"></p>
+<h2 id="–-positief-effect-van-flink-doorstappen">#2 – Positief effect van flink doorstappen</h2>
+<p>Regelmatig wordt benoemd hoe belangrijk beweging is. Het geadviseerde minimum is 10.000 stappen. Recenter <a href="https://www.nu.nl/gezondheid/6017610/hoogleraar-je-hoeft-geen-tienduizend-stappen-te-zetten-om-fit-te-blijven.html">onderzoek</a> toont aan dat als je per dag driemaal tien minuten stevig doorwandelt, je hetzelfde effect krijgt als met 10.000 stappen. Dus je hoeft minder te werken voor hetzelfde resultaat! Ideaal toch?</p>
+<p>Begin je nieuwe jaar met <a href="https://www.nederlandslank.nl/afvallen/afvallen-door-wandelen">wandelen</a>. Dat zorgt er ook voor dat hart- en vaatkwaliteit flink omhoog gaan.</p>
+<h2 id="–-een-fles-water-op-je-werkplek">#3 – Een fles water op je werkplek</h2>
+<p>Men vergeet regelmatig om voldoende <a href="https://www.nederlandslank.nl/blog/de-functies-van-water">water</a> te drinken. Uit verveling wordt op kantoor veel koffie gedronken en snoep gegeten. Zorg voor een gevulde waterfles op het bureau. Zo heb je aan het einde van de dag makkelijk meer dan een liter <a href="https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6315424/">water</a> gedronken. Als je genoeg water drinkt heb je minder trek omdat je vaak het verschil tussen trek en dorst niet opmerkt. Drink ook voor je maaltijd een groot glas water. Zo zit je sneller vol en eet je minder.</p>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/water%20drinkenn-1.jpg?width=680&amp;height=453&amp;name=water%20drinkenn-1.jpg" alt="water drinken"></p>
+<h2 id="–-kruid-je-eten-lekker">#4 – Kruid je eten lekker</h2>
+<p>Kruiden zorgen niet alleen voor meer smaak bij het eten. Ze hebben ook een <a href="https://pubmed.ncbi.nlm.nih.gov/30651162/">gunstig effect</a> op de gezondheid. Zo maak je je eten smaakvoller en ben je gezonder bezig. Probeer bijvoorbeeld wat peper over je salade te doen, kerrie op je ei of strooi wat kardemom door je koffie, kaneel door de pap. Makkelijk, lekker en gezond.</p>
+<h2 id="–-bereidingstechniek-veranderen">#5 – Bereidingstechniek veranderen</h2>
+<p>Meestal worden groenten en aardappels gekookt in een pan met veel water. Daardoor <a href="https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6049644/">verlies</a> je veel micronutriënten in vergelijking met het stomen van de groente. Als je je groenten stoomt in een stoomnetje of een stoomoven, krijg je veel meer vitamines, mineralen en gezonde plantenstoffen binnen. Als je geen stoomoven of stoomnetje hebt beschikken, kook dan met zo min mogelijk water.</p>
+<h2 id="–-wat-je-niet-in-huis-hebt-kun-je-ook-niet-eten">#6 – Wat je niet in huis hebt, kun je ook niet eten</h2>
+<p>Doe een grote opruiming in huis! Geef alles weg wat niet goed voor je is!</p>
+<p>Daarna laat je ongezonde etenswaren liggen in de supermarkt en vul je de groentenlade en je fruitschaal. Je zult merken dat je zo minder gaat snacken. Wat je niet in huis hebt, kun je ook niet eten. Wat er wordt aangeboden bepaalt voor <a href="https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3532982/">een groot deel</a> wat we eten. Je zult merken dat het hele gezin plotseling meer fruit gaat eten als de fruitmand gevuld is in plaats van de snoeppot.</p>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/fruit.jpeg?width=680&amp;height=453&amp;name=fruit.jpeg" alt="fruit"></p>
+<h2 id="–-contact-verbetert-je-mentale-gezondheid">#7 – Contact verbetert je mentale gezondheid</h2>
+<p>Het is belangrijk voor je mentale gezondheid om voldoende sociale contacten te hebben… Probeer daarom een keer contact te maken terwijl je in de rij staat bij de supermarkt of moet wachten op iets anders. Het is goed voor je mentale <a href="https://journals.plos.org/plosmedicine/article?id=10.1371/journal.pmed.1000316">gezondheid</a> en is ook nog eens gezellig. Mensen die regelmatig sociaal contact zoeken zijn over het algemeen vrolijker, gelukkiger, gezonder én leven langer.</p>
+<h2 id="–-begin-de-dag-met-een-kiwi">#8 – Begin de dag met een kiwi</h2>
+<p>De meeste mensen zien de kracht van details over het hoofd en denken te moeilijk. Een simpele tip die je gezondheid enorm kan verbeteren is bijvoorbeeld het starten van de dag met een kiwi. Bekijk de <a href="https://www.ahealthylife.nl/de-voedingswaarde-van-kiwi/">voedingswaarde</a> van een kiwi. Een kiwi eten bij het ontbijt is makkelijk en heeft veel voordelen voor de gezondheid. Een kiwi bevat namelijk niet alleen vitamine C, volgens <a href="https://pubmed.ncbi.nlm.nih.gov/21147704/">onderzoekers</a> kan het dagelijks eten van een kiwi je ook van obstipatie afhelpen of deze verminderen.</p>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/kiwi.jpg?width=680&amp;height=425&amp;name=kiwi.jpg" alt="kiwi"></p>
+<h2 id="–-eet-eens-noten-en-zaden-in-plaats-van-vlees-of-kaas">#9 – Eet eens noten en zaden in plaats van vlees of kaas</h2>
+<p>Meestal belegt men brood met <a href="https://www.nu.nl/eten-en-drinken/6064897/nederlanders-met-hun-hagelslag-muisjes-en-kokosbrood-waarom.html">vlees, kaas</a> of ander hartig beleg. Soms wordt dit afgewisseld met wat zoets zoals: jam, chocopasta of stroop. Die bevatten suiker en zout en daar hebben we niet echt behoefte aan. Om zonder veel moeite extra magnesium, vitamine E en vezels binnen te krijgen en minder suiker en zout, kun je ook regelmatig noten of notenpasta eten. Notenpasta is meestal gemakkelijk te krijgen in de supermarkt. Noten zorgen er ook voor dat je langer verzadigd bent, waardoor je minder gaat snacken, wat er op langere termijn voor zorgt dat je minder kans hebt op <a href="https://pubmed.ncbi.nlm.nih.gov/14574348/">overgewicht</a>. En <a href="https://www.nederlandslank.nl/blog/magnesium-van-het-kruidvat">magnesium</a> is o.a. belangrijk om stress de baas te blijven.</p>
+<h2 id="–-ga-mediteren">#10 – Ga mediteren</h2>
+<p>Wij zijn vaak niet meer in het nu, we denken veel aan wat er nog moet gebeuren in plaats van in het moment te zijn. Het is zeker niet erg om te denken aan de toekomst, maar het is voor de <a href="https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4895748/">mentale en fysieke gezondheid</a> wel van belang om ook bewust in het nu te zijn. Niet iedereen vindt het fijn om elke dag op een mediatie kussen te zitten. Dat hoeft ook niet. Probeer als je aan het wachten bent, op de wc zit of even niks te doen hebt te mediteren. Benut je tijd dus efficiënter. Mediatie is ook ontspanning. Ontspan je spieren en ben je bewust in het nu en let bewust op je ademhaling.</p>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/Portrait%20of%20a%20casual%20pretty%20woman%20meditating%20on%20the%20floor%20on%20gray%20background-1.jpeg?width=680&amp;height=454&amp;name=Portrait%20of%20a%20casual%20pretty%20woman%20meditating%20on%20the%20floor%20on%20gray%20background-1.jpeg" alt="mediteren"></p>
+<p>Dit zijn enkele kleine efficiënte tips, maar er zijn er nog veel meer te bedenken. Je vaste gewoontes bepalen op langere termijn of je gezond oud gaat worden. Daarom is het erg belangrijk om zo veel mogelijk gezonde gewoontes te hebben. Vaste patronen kunnen in de kleinste details doorwerken.</p>
+<h2 id="over-goede-voornemens">Over goede voornemens</h2>
+<p>Goede voornemens. Elk jaar weer beloven we onszelf van alles. Gezonder gaan eten, meer bewegen, stoppen met roken, op tijd naar bed… Maar helaas lukt het vaak niet om deze goede voornemens vol te houden…</p>
+<p>Wil jij weten hoe je daar verandering in kunt brengen? Nederland Slank vertelt je alles over het maken van goede voornemens die wél werken!</p>
+<h2 id="waarom-we-goede-voornemens-maken">Waarom we goede voornemens maken</h2>
+<h3 id="en-waarom-deze-toch-vaak-mislukken.."><em>(en waarom deze toch vaak mislukken…)</em></h3>
+<p>Afvallen en stoppen met roken. Dit zijn elk jaar de twee meest populaire <em>goede</em> voornemens die er worden gemaakt. Er zijn echter maar weinig mensen die het ook daadwerkelijk vol houden. Erg jammer is dat, want een gezond gewicht behalen en stoppen met roken zijn nou juist doelen die erg belangrijk zijn voor je gezondheid in de toekomst.</p>
+<p>Uit onderzoek blijkt dat de belangrijkste reden voor het maken van goede voornemens de gezondheid blijkt te zijn. Veel mensen willen graag gezonder eten en leven en hebben er zeker wat voor over, maar voor velen blijkt het vaak toch moeilijk vol te houden.</p>
+<p>Maar als we er veel voor over hebben en de gezondheid ook zo belangrijk vinden, waarom lukt het dan niet om goede voornemens vast te houden?</p>
+<h2 id="volhouden-van-goede-voornemens">Volhouden van goede voornemens</h2>
+<p>Uit onderzoek blijkt dat goede voornemens voor een gezondere leefstijl vaak mislukken omdat men vaak niet snel genoeg voldoende resultaat ziet. Het afvallen kan bijvoorbeeld minder snel gaan als men had gehoopt of men voelt zich niet bepaald fitter door de nieuwe gezonde leefstijl.<br>
+Veel mensen raken hierdoor al gauw ontmoedigd, waarna ze weer terugvallen in hun oude ongezonde gewoontes.</p>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/gezondheid-2.jpg?width=680&amp;height=453&amp;name=gezondheid-2.jpg" alt="gezondheid-2"></p>
+<h2 id="een-gezonde-leefstijl-betekent-veranderen..">Een gezonde leefstijl betekent veranderen…</h2>
+<p>De enige manier om succesvol en blijvend af te vallen en je fit te voelen is door je ongezonde gewoontes te veranderen. Voor altijd! Dat betekent dus niet dat je even snel 4 weken gaat lijnen om daarna weer je oude gewoontes op te pakken. Zo zul je nooit blijvend op gewicht zijn.</p>
+<p>Maar al dat tijdelijke lijnen en diëten is ook nog eens slecht voor de gezondheid en heeft een jojo-effect als gevolg. Afvallen en gezonder worden betekent dus verandering voor altijd!</p>
+<h2 id="nederland-slank-helpt-bij-het-volhouden-van-jouw-goede-voornemens">Nederland Slank helpt bij het volhouden van jouw goede voornemens!</h2>
+<p>Gewoontes veranderen is nooit makkelijk, zelfs als je van nature sterk in je schoenen staat of vastberaden bent. Er kunnen namelijk altijd momenten komen waarbij je de verleiding niet meer kan weerstaan en toch weer ongezond gaat eten…</p>
+<p>Nederland Slank heeft daar een oplossing voor. Namelijk een <a href="https://www.nederlandslank.nl/programma-nederland-slank">persoonlijk voedingsplan</a> waarmee je ervoor kunt zorgen dat je niet meer zo gemakkelijk terugvalt in oude gewoontes. Het voedingsplan zorgt er namelijk voor dat je stofwisseling en hormonen in balans komen met als gevolg dat je je mentaal en fysiek sterker en fitter gaat voelen.</p>
+<p>Naast het kwijtraken van de overtollige kilo’s werk je dus ook aan een goede gezondheid. En wanneer je lichaam gereguleerd is, zul je veel minder snel toegeven aan zwakke momenten en verleidingen.</p>
+<p>Het Nederland Slank programma heeft al vele mensen geholpen bij het behalen en behouden van een gezond gewicht en een gezond lichaam. Veel mensen die jaar in jaar uit weer opnieuw probeerden hun goede voornemens vol te houden, kregen eindelijk een handleiding waarmee het echt is gelukt!</p>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/voedingskeuze.jpg?width=680&amp;height=453&amp;name=voedingskeuze.jpg" alt="voedingskeuze"></p>
+<h3 id="wil-jij-ook-graag-hulp-bij-afvallen-en-gezonder-worden">Wil jij ook graag hulp bij afvallen en gezonder worden?</h3>
+<p>Maar lukt het je toch steeds niet om het vol te houden? Vraag dan nu een <a href="https://www.nederlandslank.nl/gratis-consult-aanvragen">gratis consult</a> aan en geef jouw goede voornemens geen kans om te mislukken!</p>
+<p>Om je alvast een eindje op weg te helpen hebben we een aantal praktische tips op een rijtje gezet. Zo kun je vandaag nog beginnen met het krijgen van een gezonde leefstijl!</p>
+<h2 id="tips-om-je-gezonde-goede-voornemens-vol-te-houden">10 tips om je gezonde goede voornemens vol te houden:</h2>
+<ol>
 <li>
-<p>Gebaseerd op het herstellen van de hormoonhuishouding door de juiste (gezonde en verantwoorde) voedingsmiddelen in de juiste combinaties te gebruiken.</p>
+<p>Breng mensen in je omgeving op de hoogte van je goede voornemens.</p>
 </li>
 <li>
-<p>Gericht op het verbeteren van de algehele gezondheid.</p>
+<p>Herinner jezelf telkens aan de voordelen en herhaal je doelen.</p>
 </li>
 <li>
-<p>Afgestemd op persoonlijke behoeften aan de hand van een bloedtest.</p>
+<p>Zoek het gezelschap op van mensen die dezelfde doelen hebben.</p>
 </li>
 <li>
-<p>Persoonlijk opgesteld voedingsplan.</p>
+<p>Vermijd verleidelijke situaties tot je sterk genoeg in je schoenen staat.</p>
 </li>
 <li>
-<p>Geen uitsluiting van voedingsmiddelen.</p>
+<p>Pak je nieuwe gewoontes gewoon weer op als het een keertje mis gaat!</p>
 </li>
 <li>
-<p>Snel afvallen door 2 kilo vetverlies per week is mogelijk.</p>
+<p>Zoek een buddy: samen houd je het makkelijker vol.</p>
 </li>
 <li>
-<p>Professionele begeleiding door diëtisten.</p>
+<p>Blijf consistent en plan je nieuwe gewoontes in.</p>
 </li>
 <li>
-<p>Kort en effectief, vergt geen onderhoudsprogramma.</p>
+<p>Kijk dagelijks naar wat je nieuwe gewoonte je nu al oplevert, zoals je fit en energiek voelen.</p>
 </li>
 <li>
-<p>Op basis van no cure, no pay</p>
+<p>Visualiseer je leven met je nieuwe gewoonte. Zie je nieuwe gewoontes dus niet als iets tijdelijks, maar als een nieuwe manier van leven!</p>
 </li>
 <li>
-<p>Veelal gebaseerd op de Schijf van Vijf van het Voedingscentrum.</p>
+<p>Focus niet op wat je niet meer mag, maar vooral op wat je wel allemaal mag.</p>
 </li>
-<li>
-<p>Gericht op het aanleren van een gezond eetpatroon en het geleidelijk aan afvallen.</p>
-</li>
-<li>
-<p>Dieet is vaak niet persoonlijk afgestemd op behoeften, maar voor iedereen gelijk.</p>
-</li>
-<li>
-<p>Afvallen gaat geleidelijk.</p>
-</li>
-<li>
-<p>Gewichtsbehoud geen garantie.</p>
-</li>
-<li>
-<p>Begeleiding door diëtist mogelijk.</p>
-</li>
-</ul>
-<h2 id="welke-bloedanalyse-hebben-we-nodig-bij-nederland-slank">Welke bloedanalyse hebben we nodig bij Nederland Slank?</h2>
-<p>Op basis van de gegevens over lever, nieren, schildklier en ontstekingswaarden kunnen we al een aantal adviezen geven. Daarnaast maken we gebruik van patroonherkenning in het bloedbeeld om te zien welke voeding het meest ondersteunend is voor jouw lichaam.</p>
-<p>De meeste mensen doen het best aardig op een dieet uit een boekje maar een stuk beter op een <a href="https://www.nederlandslank.nl/blog/je-lichaam-is-een-chemische-fabriek">persoonlijk</a> plan. Zeker als je klachten hebt of als je ambitieus bent in gezondheid kun je veel voordeel halen uit zo’n eigen menu. Erfelijkheid / DNA en omstandigheden zijn voor iedereen immers anders, de behoefte zal dus ook varieren. Honderden stofjes zorgen er uiteindelijk voor dat je optimaal functioneert. Als die in je voeding worden aangeleverd, helpt dat je gezondheid, zowel fysiek als mentaal.</p>
-<p><img src="https://www.nederlandslank.nl/hubfs/lever-gewicht-verliezen-3.webp" alt="lever-gewicht-verliezen"></p>
-<p>Maar dat niet alleen, ook de pauzes tussen de maaltijden en een aantal andere adviezen, zorgen ervoor dat je metabolisme optimaal gaat werken. Dat je weer insuline-gevoelig wordt en beter gaat slapen.</p>
-<p>Alles bij elkaar is dit het gebied van de <a href="https://www.nederlandslank.nl/blog/is-orthomoleculair-advies-nu-eigenlijk">orthomoleculaire</a> behandelaar. Zij het dat er maar weinig behandelaars met zo’n precies plan op maat werken. Daar is heel veel kennis en ervaring voor nodig. En die is aanwezig bij Nederland Slank.</p>
-<p>Daarom werken wij vooral met voeding als uitgangspunt en minder met supplementen.</p>
-<h2 id="een-persoonlijk-plan-op-basis-van-jouw-bloedanalyse">Een persoonlijk plan op basis van jouw bloedanalyse</h2>
-<p>Je krijgt dus een eigen voedingsplan waarin staat hoeveel van wat je gaat eten in een driedaagse menucyclus. Deze variatie zorgt ervoor dat je van alle voedingsstoffen voldoende en van anti-nutriënten niet te veel binnen krijgt.</p>
-<h2 id="meer-weten-over-afvallen-via-bloedanalyse">Meer weten over afvallen via bloedanalyse?</h2>
-<p>Wilt u meer informatie over het afvallen via bloedanalyse? Neem dan vrijblijvend contact met ons op of meld u direct aan voor een gratis consult.</p>
-<p>Referenties</p>
-<p>[1] Philip C Calder, Namanjeet Ahluwalia, Fred Brouns, Timo Buetler, Karine Clement, Karen Cunningham, Katherine Esposito, Lena S Jönsson, Hubert Kolb, Mirian Lansink, Ascension Marcos, Andrew Margioris, Nathan Matusheski, Herve Nordmann, John O’Brien, Giuseppe Pugliese, Salwa Rizkalla, Casper Schalkwijk, Jaakko Tuomilehto, Julia Wärnberg, Bernhard Watzl, Brigitte M Winklhofer-Roob. 2011. <a href="https://pubmed.ncbi.nlm.nih.gov/22133051/">Dietary factors and low-grade inflammation in relation to overweight and obesity</a></p>
-<p>[2] Allison B Goldfine, Robert Silver, Waleed Aldhahi, Dongsheng Cai, Elizabeth Tatro, Jongsoon Lee, Steven E Shoelson. 2008. <a href="https://pubmed.ncbi.nlm.nih.gov/19337387/">Use of salsalate to target inflammation in the treatment of insulin resistance and type 2 diabetes</a></p>
-<p>[3] P C Calder, N Ahluwalia, R Albers, N Bosco, R Bourdet-Sicard, D Haller, S T Holgate, L S Jönsson, M E Latulippe, A Marcos, J Moreines, C M’Rini, M Müller, G Pawelec, R J J van Neerven, B Watzl, J Zhao. 2013. <a href="https://pubmed.ncbi.nlm.nih.gov/23343744/">A consideration of biomarkers to be used for evaluation of inflammation in human nutritional studies</a></p>
+</ol>
+<p><img src="https://www.nederlandslank.nl/hs-fs/hubfs/New%20Year%20New%20Me%20card%20with%20a%20beach%20on%20background.jpeg?width=680&amp;height=555&amp;name=New%20Year%20New%20Me%20card%20with%20a%20beach%20on%20background.jpeg" alt="goede voornemens"></p>
+<h2 id="nederland-slank-wenst-je-een-gezond-en-gelukkig-jaar">Nederland Slank wenst je een gezond en gelukkig jaar!</h2>
+<h2 id="een-jaar-waarin-we-allemaal-gezond-worden-enof-blijven.">Een jaar waarin we allemaal gezond worden en/of blijven.</h2>
+<p>We hopen dat je aan deze tips alvast wat hebt en ook dat je deze wat makkelijker vol kunt houden.</p>
+<p>En anders willen we je graag helpen met jouw persoonlijke voedingsplan.</p>
 
